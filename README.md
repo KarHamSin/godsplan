@@ -29,15 +29,26 @@ Oplossingen:
 ## Ministerie van Landbouw, Natuur en Voedselkwaliteit
 ## Ministerie van Onderwijs, Cultuur en Wetenschap
 ### Cultuur
+
+#### Eenverdieners
+Door het huidige stelsel en door keuzes die door opeenvolgende kabinetten zijn gemaakt, is de belastingdruk op eenverdieners extreem hoog als je die afzet tegen de belastingdruk van tweeverdieners. De belastingdruk op een éénverdienershuishouden is al snel drie á vier zo groot, en kan oplopen tot bijna zeven keer zoveel als op een gezin met twee verdieners. Dat is oneerlijk en onrechtvaardig. Hoog tijd dat daar verandering in komt! Er moet daarbij veel meer rekening gehouden worden met (gezins)draagkracht. Dit draagkrachtbeginsel moet het uitgangspunt van het belastingstelsel zijn.
+Concreet:
+- Eenverdieners en alleenstaanden betalen verhoudingsgewijs enorm veel belasting. Van de beloften van kabinetten om de kloof tussen een- en tweeverdieners te verkleinen is de laatste jaren niets terecht gekomen. Sterker nog: die is alleen maar vergroot, terwijl veel eenverdieners ervoor kiezen uiterst waardevol (onbetaald) werk te doen, bijvoorbeeld mantelzorg. En denk ook aan gezinnen die er bewust voor kiezen om hun kinderen te laten opgroeien in het eigen gezin waar één van de ouders altijd klaar staat voor de kinderen. Weer anderen hebben een gepensioneerde of zieke partner. De kloof tussen een- en tweeverdieners moet dicht! 
+- Gezinsdraagkracht moet weer het uitgangspunt worden van het belastingstelsel. Daarom moet het splitsingsstelsel ingevoerd worden: het totale gezinsinkomen wordt gedeeld door twee en daarna worden de fiscale partners ieder apart belast. Op die manier maakt het voor hoogte van de belasting niet uit of het gezinsinkomen door een of door twee buitenshuis werkenden verdiend wordt. Dat is wel zo eerlijk! 
+- Er moeten maatregelen worden genomen die een gezinsvriendelijk fiscaal beleid bevorderen. Te denken is aan een draagkrachtkorting, een verhoging van de kinderbijslag en het kindgebonden budget en een beperking van de inkomensafhankelijke combinatiekorting. Daarnaast komt er een eenmalige, extra uitkering van 1000 euro voor de geboorte van het vierde kind, die bijvoorbeeld gebruikt kan worden voor de aanschaf van een grotere gezinsauto.
+- In aanloop naar de invoering van het splitsingsstelsel, moet de overdraagbaarheid van de algemene heffingskorting worden verhoogd.
+
+[SGP, Verkiezingsprogramma 2021 - 2025] 
+
 #### Gezin
 Het klassieke gezin van man en vrouw, vaak verrijkt met kinderen, is als vanouds dé pijler en
 belangrijkste levenskring van de hele maatschappij. En als in zo’n gezin liefde woont, is dat een
 zegen van onschatbare waarde voor iedereen. Waar gezinnen floreren, bloeien mannen en vrouwen
 en kinderen op. Dat is een soort natuurwet die in de schepping is gelegd, en dat geeft vertrouwen.
-Wat dat betreft zou het een prachtig signaal zijn als de Grondwet die waardering voor het klassieke
-gezin zou uitdrukken in een speciale passage. [SGP, Verkiezingsprogramma 2021 - 2025] 
+[SGP, Verkiezingsprogramma 2021 - 2025] 
 
-#### Huwelijk
+
+#### Huwelijk  
 Aan de basis van een gezin ligt een huwelijk waarin man en vrouw elkaar liefhebben en trouw zijn.
 De dagelijkse werkelijkheid is helaas nogal eens anders. Als ergens de gebrokenheid van na de
 zondeval bitter en pijnlijk wordt gevoeld, is het wel in huwelijken en families. De gevolgen zijn,
@@ -45,7 +56,12 @@ geestelijk en materieel, enorm, en al helemaal voor kinderen die erin meegezogen
 hier geldt dat maakbaarheid een illusie is, maar dat mag nooit reden zijn om afbreuk te doen aan
 de belofte van liefde en trouw. Als we dat wél zouden doen, maken we de ellende en misère alleen
 nog maar groter. Een samenleving die zulke deugden laat vallen, valt vroeg of laat zelf ten prooi
-aan ontbinding. [SGP, Verkiezingsprogramma 2021 - 2025] 
+aan ontbinding.
+Concreet:
+- Inspanningen voor het in stand houden van huwelijken moeten krachtig ondersteund worden. De beschikbaarheid van programma’s voor vroegtijdige hulp en begeleiding moet vergroot worden.
+- Bij echtscheiding dient bemiddeling verplicht te worden, zeker wanneer de ouders kinderen jonger dan 18 jaar hebben, teneinde de schade voor kinderen te beperken. 
+
+[SGP, Verkiezingsprogramma 2021 - 2025]
 
 #### Gender
 
