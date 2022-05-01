@@ -1,4 +1,4 @@
-# Godsplan
+# Verzameling van politieke standpunten
 
 ## Ministerie van Landbouw, Natuur en Voedselkwaliteit
 ### Landbouw
